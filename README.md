@@ -1,4 +1,6 @@
 # MMTAutomated
 
-https://github.com/shashwat0704/MMTAutomated/assets/90603161/b4ab28ac-3f3b-4c11-959d-66f5e83aadd0
+https://github.com/shashwat0704/MMTAutomated/assets/90603161/4e664657-26c4-4fd9-a6b6-405767db10e0
+
+
 
